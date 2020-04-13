@@ -1,1 +1,0 @@
-# la realidad de pedrito
